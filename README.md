@@ -10,3 +10,9 @@ https://github.com/jorgequirozcasanova-dotcom/functional_genomics_AD2025/blob/ma
 
 
 ![lagartija uwu](https://github.com/user-attachments/assets/9b3ecca0-7a37-44dd-82dc-232693f5d475)
+
+
+
+
+
+
